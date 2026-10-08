@@ -13,5 +13,5 @@
 </p>
 ☠︎︎ <br>
 </p>
-<em>i usually just lurk and stay quiet but feel free to chat with me (might reply late bc offtab)</em>
+<em>i usually just lurk and stay quiet but feel free to chat with me (might reply late bc offtab)</em> <br>
 <em></em>int (w2i) & c+h always welcome. i dont bite dw :3c</em> <br>
