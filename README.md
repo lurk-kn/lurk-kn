@@ -1,6 +1,6 @@
 <div align="center">
   
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=lurk-kn&color=000000&style=for-the-badge)
+![Profile view](https://komarev.com/ghpvc/?username=lurk-kn&color=000000&style=for-the-badge)
 </p>
 <img width="397" height="304" alt="frox" src="https://github.com/user-attachments/assets/9e8ce822-2505-4fbe-9dd6-9781a80b06d5" /> <br>
 <del>froggy top x grox bottom only !!</del> <br>
